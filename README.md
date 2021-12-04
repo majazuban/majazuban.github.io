@@ -1,0 +1,1 @@
+# majazuban.github.io
